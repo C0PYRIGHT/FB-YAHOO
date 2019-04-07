@@ -1,2 +1,2 @@
 # FB-YAHOO
-This is the copyright tool #https://www.thefool.zone.id
+This is the copyright tool #https://www.thefoolnoob.zone.id
